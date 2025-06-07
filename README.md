@@ -1,5 +1,5 @@
-## Overview of DAEMON Tools Lite crack
-DAEMON Tools Lite allows you to mount all known disc image files and emulates up to 4 DT + SCSI + HDD devices. It enables you to create images of your optical discs and access them via a well-organized catalog.
+## DAEMON Tools Lite crack
+DAEMON Tools Lite Crack allows you to mount all known disc image files and emulates up to 4 DT + SCSI + HDD devices. It enables you to create images of your optical discs and access them via a well-organized catalog.
 
 This tool is ideal for working with your files and creating new images from optical discs, data files, and Audio CDs. All you need from burning software is always at your fingertips. Burn images, data, and audio files to optical media; erase discs and copy them on the fly.
 
